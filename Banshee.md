@@ -1,4 +1,4 @@
-# Google search results for Banshee
+## Google search results for Banshee
 ## Banshee; info taken from: https://phasmophobia.fandom.com/wiki/Banshee
 ### Journal entry:
 *„The singing siren, known for attracting its victims through song. It has been known to single out its prey before making a killing blow.”*

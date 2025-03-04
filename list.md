@@ -1,4 +1,5 @@
-# List of ghost types; source: [phasmophobia.fandom.com](phasmophobia.fandom.com)
+## List of ghost types; source: [phasmophobia.fandom.com](phasmophobia.fandom.com)
+
 | Ghost type | Strengths | Weaknesses | Link to google search results |
 | --- | --- | --- | --- |
 | Banshee | Will target only one player at a time.Increased chance of performing a singing ghost event. | Has a distinctive wail on the Parabolic Microphone. | [Link to search results](Banshee.html) |

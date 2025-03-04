@@ -1,4 +1,4 @@
-# Google search results for Mare
+## Google search results for Mare
 ## Mare; info taken from: https://phasmophobia.fandom.com/wiki/Mare
 ### Journal entry:
 *„A Mare is the source of all nightmares, making it most powerful in the dark.”*

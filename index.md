@@ -1,4 +1,4 @@
-# Types of ghosts in Phasmophobia
+## Types of ghosts in Phasmophobia
 
 Phasmophobia (2020) is a cooperative video game that centers around searching for ghosts. Each ghost has some unique properties, abilities, strenghts and weaknesses. This causes the players to adopt a unique approach to every ghost and map.
 

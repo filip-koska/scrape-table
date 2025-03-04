@@ -1,4 +1,4 @@
-# Google search results for Hantu
+## Google search results for Hantu
 ## Hantu; info taken from: https://phasmophobia.fandom.com/wiki/Hantu
 ### Journal entry:
 *„A Hantu is a rare ghost that thrives in the coldest climates. The cold seems to make them more aggressive and empowered.”*

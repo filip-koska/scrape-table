@@ -1,4 +1,4 @@
-# Google search results for Demon
+## Google search results for Demon
 ## Demon; info taken from: https://phasmophobia.fandom.com/wiki/Demon
 ### Journal entry:
 *„A Demon is one of the worst ghosts you can encounter. It has been known to attack without reason.”*

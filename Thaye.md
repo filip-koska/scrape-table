@@ -1,4 +1,4 @@
-# Google search results for Thaye
+## Google search results for Thaye
 ## Thaye; info taken from: https://phasmophobia.fandom.com/wiki/Thaye
 ### Journal entry:
 *„Thaye have been known to rapidly age over time, even in the afterlife. From what we've learned, they seem to deteriorate faster while within the presence of the living.”*

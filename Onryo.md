@@ -1,4 +1,4 @@
-# Google search results for Onryo
+## Google search results for Onryo
 ## Onryo; info taken from: https://phasmophobia.fandom.com/wiki/Onryo
 ### Journal entry:
 *„The Onryo is often referred to as "The Wrathful Spirit". It steals souls from dying victims' bodies to seek revenge. This ghost has been known to fear any form of fire, and will do anything to be far from it.”*

@@ -1,4 +1,4 @@
-# Google search results for Revenant
+## Google search results for Revenant
 ## Revenant; info taken from: https://phasmophobia.fandom.com/wiki/Revenant
 ### Journal entry:
 *„A Revenant is a violent ghost that will attack indiscriminately. Their speed can be deceiving, as they are slow while dormant; however, as soon as they hunt they can move incredibly fast.”*

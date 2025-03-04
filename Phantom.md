@@ -1,4 +1,4 @@
-# Google search results for Phantom
+## Google search results for Phantom
 ## Phantom; info taken from: https://phasmophobia.fandom.com/wiki/Phantom
 ### Journal entry:
 *„A Phantom is a ghost that can possess the living, inducing fear into those around it. They are most commonly summoned from Ouija Boards.”*

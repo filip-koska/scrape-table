@@ -1,4 +1,4 @@
-# Google search results for Deogen
+## Google search results for Deogen
 ## Deogen; info taken from: https://phasmophobia.fandom.com/wiki/Deogen
 ### Journal entry:
 *„Sometimes surrounded by an endless fog, Deogen have been eluding ghost hunters for years.These ghosts have been reported to find even the most hidden prey, before stalking them into exhaustion.”*

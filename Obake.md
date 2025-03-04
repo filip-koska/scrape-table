@@ -1,4 +1,4 @@
-# Google search results for Obake
+## Google search results for Obake
 ## Obake; info taken from: https://phasmophobia.fandom.com/wiki/Obake
 ### Journal entry:
 *„Obake are terrifying shape-shifters, capable of taking on many forms. They have been seen taking on humanoid shapes to attract their prey.”*

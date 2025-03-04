@@ -1,4 +1,4 @@
-# Google search results for Moroi
+## Google search results for Moroi
 ## Moroi; info taken from: https://phasmophobia.fandom.com/wiki/Moroi
 ### Journal entry:
 *„Moroi have risen from the grave to drain energy from the living. They have been known to place curses on their victims, curable only by antidotes or moving very far away.”*

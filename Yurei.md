@@ -1,4 +1,4 @@
-# Google search results for Yurei
+## Google search results for Yurei
 ## Yurei; info taken from: https://phasmophobia.fandom.com/wiki/Yurei
 ### Journal entry:
 *„A Yurei is a ghost that has returned to the physical world, usually for the purpose of revenge or hatred.”*

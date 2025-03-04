@@ -1,4 +1,4 @@
-# Google search results for Oni
+## Google search results for Oni
 ## Oni; info taken from: https://phasmophobia.fandom.com/wiki/Oni
 ### Journal entry:
 *„Onis love to scare their victims as much as possible before attacking. They are often seen in their physical form, guarding their place of death.”*

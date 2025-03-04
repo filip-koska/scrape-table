@@ -1,4 +1,4 @@
-# Google search results for The Mimic
+## Google search results for The Mimic
 ## The Mimic; info taken from: https://phasmophobia.fandom.com/wiki/The_Mimic
 ### Journal entry:
 *„The Mimic is an elusive, mysterious, copycat ghost that mirrors traits and behaviours from others, including other ghost types.”*
