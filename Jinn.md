@@ -1,5 +1,5 @@
 ## Google search results for Jinn
-## Jinn; info taken from: https://phasmophobia.fandom.com/wiki/Jinn
+## Jinn; info taken from: [https://phasmophobia.fandom.com/wiki/Jinn](https://phasmophobia.fandom.com/wiki/Jinn)
 ### Journal entry:
 *„A Jinn is a territorial ghost that will attack when threatened. It has also been known to be able to travel at significant speed.”*
 

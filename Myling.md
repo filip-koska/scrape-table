@@ -1,5 +1,5 @@
 ## Google search results for Myling
-## Myling; info taken from: https://phasmophobia.fandom.com/wiki/Myling
+## Myling; info taken from: [https://phasmophobia.fandom.com/wiki/Myling](https://phasmophobia.fandom.com/wiki/Myling)
 ### Journal entry:
 *„A Myling is a very vocal and active ghost. They are rumoured to be quiet when hunting their prey.”*
 

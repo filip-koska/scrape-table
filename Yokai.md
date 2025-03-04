@@ -1,5 +1,5 @@
 ## Google search results for Yokai
-## Yokai; info taken from: https://phasmophobia.fandom.com/wiki/Yokai
+## Yokai; info taken from: [https://phasmophobia.fandom.com/wiki/Yokai](https://phasmophobia.fandom.com/wiki/Yokai)
 ### Journal entry:
 *„Yokai are common ghosts that are attracted to human voices. They can usually be found haunting family homes.”*
 

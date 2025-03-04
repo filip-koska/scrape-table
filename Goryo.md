@@ -1,5 +1,5 @@
 ## Google search results for Goryo
-## Goryo; info taken from: https://phasmophobia.fandom.com/wiki/Goryo
+## Goryo; info taken from: [https://phasmophobia.fandom.com/wiki/Goryo](https://phasmophobia.fandom.com/wiki/Goryo)
 ### Journal entry:
 *„When a Goryo passes through a DOTS projector, using a video camera is the only way to see it.”*
 

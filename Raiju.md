@@ -1,5 +1,5 @@
 ## Google search results for Raiju
-## Raiju; info taken from: https://phasmophobia.fandom.com/wiki/Raiju
+## Raiju; info taken from: [https://phasmophobia.fandom.com/wiki/Raiju](https://phasmophobia.fandom.com/wiki/Raiju)
 ### Journal entry:
 *„A Raiju is a demon that thrives on electrical current. While generally calm, they can become agitated when overwhelmed with power.”*
 

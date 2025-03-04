@@ -1,5 +1,5 @@
 ## Google search results for The Twins
-## The Twins; info taken from: https://phasmophobia.fandom.com/wiki/The_Twins
+## The Twins; info taken from: [https://phasmophobia.fandom.com/wiki/The_Twins](https://phasmophobia.fandom.com/wiki/The_Twins)
 ### Journal entry:
 *„These ghosts have been reported to mimic each other's actions. They alternate their attacks to confuse their prey.”*
 
